@@ -1,4 +1,6 @@
-## Hi there 👋
+##杏彩注册网址|杏彩总代理|杏彩开户-最新消息-杏彩平台
+
+<https://xingcaiyy.github.io>
 
 <!--
 **xingcaiyy/xingcaiyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
